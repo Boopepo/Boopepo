@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Boopepo
+- 👀 I’m interested in game coding maybe...
+- 🌱 I’m currently learning no
+- no
+- no
